@@ -6,7 +6,7 @@
  * 400g de queijo ralado, que pode ser
    * meia-cura 
    * metade parmesão / metade gruyère
-   * metade pecora / metade dobiacco 
+   * 150g de pecora / 250g de dobiacco 
  * 2 colheres de café de sal
  * 200ml de leite
  * 75ml azeite de oliva
